@@ -1,4 +1,4 @@
-
+Enhance your TunnelBear experience with TunnelBear updated App: NAT-firewall & WireGuard-support, the #1 app. Includes NAT-firewall and WireGuard-support for a safer and more
 
 
 
